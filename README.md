@@ -1,2 +1,0 @@
-# Adham
-WHAT IS AI
